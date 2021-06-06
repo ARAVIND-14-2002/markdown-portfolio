@@ -1,1 +1,3 @@
-This repository is a starter portfolio that you can use to learn a little bit about communication using Markdown.
+A soul of peaceful mind resting on my body.
+Loves Coding,Graphic designing and fornite.
+A benevolent person and a btech student
